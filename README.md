@@ -1,5 +1,5 @@
 
-　　　　　　　　　![](https://komarev.com/ghpvc/?username=urgituser&label=_+++𝓦dcs+++_&style=plastic)  
+-> 　　　　　　　　　![](https://komarev.com/ghpvc/?username=urgituser&label=_+++𝓦dcs+++_&style=plastic)  
 
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=E18440&width=700&lines=%E3%80%80%E3%80%80%E3%80%80+do+everything+you+can;%E3%80%80%E3%80%80%E3%80%80%E3%80%80%E3%80%80and+yet%2C+;%E3%80%80%E3%80%80%E3%80%80you+failed.)](https://git.io/typing-svg)
@@ -12,7 +12,7 @@
 
 
 
-　　　 　　　　　012.07.2025.
+　　　 　congrats lando. 012.07.2025.
 
 -------         
 
