@@ -1,7 +1,10 @@
+you 　　 destroyed
 
--> 　　　　　　　　　![](https://komarev.com/ghpvc/?username=urgituser&label=_+++𝓦dcs+++_&style=plastic)  
+　　 us, 　 not me
+　　　　![](https://komarev.com/ghpvc/?username=urgituser&label=_+++𝓦dcs+++_&style=plastic)  
 
-
+　　　　　　　　　　　born to be a 
+　　　　　 　　　　　　star , 　　 but i failed
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=E18440&width=700&lines=%E3%80%80%E3%80%80%E3%80%80+do+everything+you+can;%E3%80%80%E3%80%80%E3%80%80%E3%80%80%E3%80%80and+yet%2C+;%E3%80%80%E3%80%80%E3%80%80you+failed.)](https://git.io/typing-svg)
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7F7F7&width=700&lines=%E3%80%80%E3%80%80%E3%80%80%E3%80%80%E3%80%80%E3%80%80%E3%80%80%E3%80%80%E3%80%80+better+luck%2C+next+time)](https://git.io/typing-svg)
